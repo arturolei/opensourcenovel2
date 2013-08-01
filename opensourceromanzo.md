@@ -28,30 +28,43 @@ Furthermore, now with some semblance of a sober mind and even become settled ami
  
 Again, if I remained in the plane, I would certainly run out food and liquid (oddly enough in my own time I can “drink” liquid in close contact with me, though it feels decidedly strange, unnatural for reasons I still cannot fathom). I certainly did not want to re-enter into normal time and die in a plane crash nor spend my remaining days languishing in a plane (or worse, if driven mad by hunger and temporal disorientation, resorting to cannibalism).
  
-Gazing outside the window I knew we were near enough to the water that perhaps I could safely make the descent and bring myself to safety. Of course, if I got out of the plane and brought myself to the relative safety of the Pacific Ocean and then rejoined normal time, I would be alone and be waiting for some time for a rescue, or rather a salvage effort. Misery loves company. Plus, among the passengers, there might be someone with halfway decent survival training.
- 
-So it was on the sixth day that I elected to save everyone or nearly everyone. There was first the problem of opening the door and then getting out of the plane in the first place.
- 
-I began rifling through the luggage available in the overhead compartment in the hopes of something that would assist my descent (I confess that my wallet after the flight was a bit heavier than I would care to admit; being a poor graduate student can sometimes have an effect on one’s honesty) 
+Gazing outside the window I knew we were near enough to the water that perhaps I could safely make the descent and bring myself to safety. Of course, if I got out of the plane and brought myself to the relative safety of the Pacific Ocean and then rejoined normal time, I would be alone and be waiting for some time for a rescue, or rather a salvage effort. Misery loves company. Plus, among the passengers, there might be someone with halfway decent survival training. I’m certain I would have either drowned or frozen to death amid the indifferent waves. 
 
-How far did I have to move everyone so they would survive? It was a rather large plane, and I guessed there must have been a few hundred people.
- 
-Could I feasibly move everyone? I already had enough difficulty moving the rather corpulent gourmet two seats over.
- 
+So it was on the sixth day, lacking anything better to do, that I elected to save everyone or nearly everyone. Of course, I should add that it was at that point, it was the most time I had spent cut off from normal time. 
+
+Before then, the most time I had spent was, I confess, when I had elected to take approximately 72 hours to finish a 12 hour take-home exam (the university can void my degree if they so wish and if they can get some in physics or philosophy department to agree whether taking advantage of the relativity of timeframes is cheating or just using one’s natural abilities).  However, every hour I spent outside of normal time, I could not suppress a growing sense of unease, as if I were committing a mortal sin against space and time, not against God but on some personal level. I felt as if everything were shaded differently. For instance, I could pick up the violin, I could play a note or two but it would just sound off. Food tasted the same but amiss. I felt as if I were the one instrument in an orchestra of thousands not playing my part; the symphony could still be heard and understood but there would be one man not contributing, not playing his part. 
+
+After that episode of academic indiscretion or rather the manipulation of time for the sake thereof, I never dared to stay more than a day outside of normal time, let alone a few hours. They say that fear gives men wings, but it’s not quite true. Fear also clips wings. It keeps men grounded and safe from taking unnecessary risks and from getting anything worthwhile done. Fear (e.g. fear of being caught if my power ceased to exist, fear of being stuck alone, forever cut off from normal time, fear of causing a horrific accident) I would like to believe has kept me from transgressing certain moral boundaries (a fact which I’m certain members of the opposite sex will be relieved to hear)
+
+
+By the sixth day, I must have become a bit bonkers. 
+
+First, there was the problem of opening the door and then finding a way out of the plane in the first place. 
+
+The emergency exit door on the starboard side was surprisingly easy to open and filled me with some confidence. “So far so good”, I thought. I later discovered, on some random online trivia site, that I had lucked out. The emergency doors usually do not open in flight due to differences in air pressure. I never liked thinking too hard about the physics because 1) I was always terrible with physics 2) it fed a debilitating sense of unease. 
+
+Gazing down from the open door, I had trouble estimating the drop below. Below I could see the dark waters below, frozen in movement, a three-dimension still life waiting to awaken. On a lark, I added to the pollution of the world’s ocean by dropping a few soda cans out of the plane. 
+
+Oddly enough, the cans bounced back, as if hitting ice. I could not see if there was fragmentation of the frozen water, but I knew now that I could descend to the water, I would be able to walk across the waves far enough to safety. I had never walked upon water before, not even daring to do so in a bathtub or a shallow fountain. Again, I was always afraid of meeting some accident or again losing my abilities at a potentially embarrassing moment. 
+
+I began rifling through the luggage available in the overhead compartment in the hopes of something that would assist my descent (I confess that my wallet after the flight was a bit heavier than I would care to admit; being a poor graduate student can sometimes have an effect on one’s honesty). I considered making a rope out of the blankets the airline had offered earlier. 
+
+How far did I have to move everyone so they would survive? It was a rather large plane, and I guessed there must have been a few hundred people (353 to be exact, not counting crew, as I found out some time later after nearly breaking my back lugging some middle age schoolmarm off the plane). The impact of the plane crashing into the water would be substantial. I would have to go at least a mile from the plane to be safe and to assuage my extreme risk aversion (as a rule I never make bets unless the odds are 75% or better). 
+
+Could I feasibly move everyone? I already had enough difficulty moving the rather corpulent gourmet two seats over and I already was short of breath. Not helping was that his body was contorted in a rather odd position. I never was particularly strong. At best, I could lift fifty pounds with my arms not buckling too noticeably. Granted, I had learned on my own that old secret of martial artists, using the whole body to mask or compensate for the weakness of its parts.  
+
+Once you’ve started down the path of Don Quixote, once you’ve donned the rusty armor and gotten upon the bedraggled horse you pass off as a mighty steed, you might as well sally forth and charge that windmill. 
+
+I began making up stories. Hell, I might have even begun talking with some of my fellow passengers. I attempted to imagine relations between passengers. I invented elaborate backstories or inferred what I could about their station form their attire. I guessed that from their weight and bearing most of them were (thank goodness, had they all been average Americans I would have broken my back dragging them out of the plane). 
+
+Some of my stories were outright preposterous, the product of an extremely bored and an increasingly temporally disturbed mind. The chap in business casual, probably some hotshot executive in disguise in row 36, seat A was in love with the stern, slender college student in row 38 in Berkeley hoodie. They had corresponded via notes passed in between trips to the lavatory, notes scrawled on legal paper in ballpoint pen, as if they both were high school students from the early 90s. The dour old man in row 23 in the fading tracksuit was a former secret agent returned from one last off-the-books mission in the mysterious Orient to track down the wayward daughter of an old colleague. The rather heavy chef (who became the bane of my existence) was 
+
+By the thirteenth or fourteenth day, I realized that I could not save everyone. Some were already dead. An infant tossed from his mother’s hands had impacted against the roof of the passenger cabin. I hesitated at one point as to whether I should carry the unfortunate deceased with me, so that the parents who survived would at least have something to bury. 
+
+This being post 9-11, I had no way of getting into the cockpit. I am sure I could have saved the pilots somehow. I’m sure that after the publication of this account there will be some expert who will point out that I missed a lever or two. In fact, I realized that I could have accessed the cargo hold of the plane which would have made my eventual escape plan considerably easier. 
+
+
+The new normal can be someone else’s very definition of a vacation in Hell. 
+
 
  
-Fragments:
-It began midway through my first round of college, the heady carefree of undergraduate…
- 
-The stern professor had begun to announce, with a hint of subdued sadistic glee, the dwindling minutes allowed to the condemned. I had wanted there to be more time.
- 
-Then I realized that the clock had stopped moving.
- 
-For the End of the book
- 
-And so now you know why they can never get me. And so now you know that I could be next to you now as you read this (or maybe just in your house re-arranging the books on your shelf and stealing one sock from all the pairs of socks you own for what the young folk call “shits and giggles”)—same universe, different times. And so if you find that a disagreeable politician was found with standing naked in the middle of Times Square, you shall know how it came to pass. And so if some bank finds its vault a bit short, you’ll know why (no worries I never take more than I need and they have insurance for it).  
- 
-Footnote:
-I am at the library now, typing this manuscript up….
- 
-I saw someone or something move, in the distance, a shadow moved. I am not alone in this time. I am not alone, and now I am frightened.
