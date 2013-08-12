@@ -55,16 +55,27 @@ Could I feasibly move everyone? I already had enough difficulty moving the rathe
 
 Once you’ve started down the path of Don Quixote, once you’ve donned the rusty armor and gotten upon the bedraggled horse you pass off as a mighty steed, you might as well sally forth and charge that windmill. 
 
-I began making up stories. Hell, I might have even begun talking with some of my fellow passengers. I attempted to imagine relations between passengers. I invented elaborate backstories or inferred what I could about their station form their attire. I guessed that from their weight and bearing most of them were (thank goodness, had they all been average Americans I would have broken my back dragging them out of the plane). 
+I attempted to imagine relations between passengers. I invented elaborate backstories or inferred what I could about their station form their attire (and later from their carry-on luggage). I guessed that from their weight and bearing most of them were (thank goodness, for, had they all been average Americans I would have broken my back dragging them out of the plane and then to a safe impact point potentially far away). 
 
-Some of my stories were outright preposterous, the product of an extremely bored and an increasingly temporally disturbed mind. The chap in business casual, probably some hotshot executive in disguise in row 36, seat A was in love with the stern, slender college student in row 38 in Berkeley hoodie. They had corresponded via notes passed in between trips to the lavatory, notes scrawled on legal paper in ballpoint pen, as if they both were high school students from the early 90s. The dour old man in row 23 in the fading tracksuit was a former secret agent returned from one last off-the-books mission in the mysterious Orient to track down the wayward daughter of an old colleague. The rather heavy chef (who became the bane of my existence) was 
+Some of the lives I imagined for my charges (what I came to call them) were outright preposterous, the product of an extremely bored and an increasingly temporally disturbed mind. The chap in business casual, probably some hotshot executive in disguise in row 36, seat A was in love with the stern, slender college student in row 38 in Berkeley hoodie. They had corresponded via notes passed in between trips to the lavatory, notes scrawled on legal paper in ballpoint pen, as if they both were high school students from the early 90s. The dour old man in row 23 in the fading tracksuit was a former secret agent returned from one last off-the-books mission in the mysterious Orient to track down the wayward daughter of an old colleague (the mission had ended bittersweetly but at least served as a fitting coda to a career only glorious in hindsight). The rather heavy chef (who became the bane of my existence due to his considerable girth) from first class whose place I had usurped only gone on this flight to complete a quixotic quest to eat every species of snail in Southeast Asia, even the poisonous ones. 
 
-By the thirteenth or fourteenth day, I realized that I could not save everyone. Some were already dead. An infant tossed from his mother’s hands had impacted against the roof of the passenger cabin. I hesitated at one point as to whether I should carry the unfortunate deceased with me, so that the parents who survived would at least have something to bury. 
+By the thirteenth or fourteenth day, I realized that I could not save everyone. Some were already dead. An infant tossed from his mother’s hands had impacted against the roof of the passenger cabin. I hesitated at one point as to whether I should carry the unfortunate deceased with me, so that the parents who survived would at least have something to bury or let them remain in their graves. 
 
 This being post 9-11, I had no way of getting into the cockpit. I am sure I could have saved the pilots somehow. I’m sure that after the publication of this account there will be some expert who will point out that I missed a lever or two. In fact, I realized that I could have accessed the cargo hold of the plane which would have made my eventual escape plan considerably easier. 
 
 
 The new normal can be someone else’s very definition of a vacation in Hell. 
+
+As to how I was to get done, I could think of no better solution as I, alas, had never learned to tie very good knots (I ought to have taken that class in topology when I was younger). 
+
+The solution was rather infantile but it was the best that I could devise given my limited knowledge. Again, as each day passed, I became more and more unhinged. Food tastes funny outside of normal time. I based my plan on the assumption that everyone had brought with them at least one piece of luggage, each piece of luggage having
+
+Then, I could use the remaining seats if I fell short. 
+I had long forsaken being beholden to the laws of personal property, especially under the given circumstances. 
+The first bag I opened was nothing special, just clothes. 
+
+And so in the end I lived a month in between two moments. 
+
 
 
  
